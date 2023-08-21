@@ -1,1 +1,1 @@
-Contact Jyri, Kimmo, Samuli to get access
+Contact Jyri or Samuli to get access
