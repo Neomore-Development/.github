@@ -1,1 +1,1 @@
-Contact Jyri or Samuli to get access
+Contact Jyri to get access
